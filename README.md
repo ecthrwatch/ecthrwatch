@@ -2,7 +2,9 @@
 - 👀 I’m interested in the European Court of Human Rights
 - 🌱 I’m currently learning how to successfully take a case to the European Court of Human Rights
 - 💞️ I’m looking to collaborate with law enforcement
-- 📫 How to reach me ecthrwatch (at) gmail dot com
+- 📫 How to reach me:
+- by email ecthrwatch@gmail.com
+- or by Twitter DMs https://twitter.com/ECTHRwatch
 
 <!---
 ecthrwatch/ecthrwatch is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
