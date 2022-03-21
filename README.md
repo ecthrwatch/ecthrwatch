@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ecthrwatch
 - 👀 I’m interested in the European Court of Human Rights
 - 🌱 I’m currently learning how to successfully take a case to the European Court of Human Rights
-- 💞️ I’m looking to collaborate with law enforcement
+- 💞️ I’m looking to collaborate with law enforcement and more specifically with the F.B.I. (visit Federal-Bureau-of-Investigation.com (NON-OFFICIAL website on the Federal Bureau of Investigation) to read most of my written communications to them).
 - 📫 How to reach me:
 - by email ecthrwatch@gmail.com
 - or by Twitter DMs https://twitter.com/ECTHRwatch
